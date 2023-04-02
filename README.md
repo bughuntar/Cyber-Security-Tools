@@ -1,4 +1,4 @@
-# 24 Cybersecurity Search Engines that Every Hacker Should Know  🎯
+# 24 Cyber Security Search Engines that Every Hacker Should Know  🎯
 <br>&nbsp;
 
 No | Resources | Website | | No | Resources | Website
